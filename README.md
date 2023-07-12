@@ -1,3 +1,4 @@
 
-### Olá! me chamo Lucas.👋
-### back-end developer
+### Hey!👋
+### 👨‍💻back-end developer and Helpdesk👨‍💻
+### 🎮🖥️PC Gamer🖥️🎮
